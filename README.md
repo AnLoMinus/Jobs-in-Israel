@@ -89,6 +89,6 @@ jobs-in-israel/
 
 ---
 
-פותח על ידי [לאון יעקובוב] עבור קבוצת Jobs in Israel בפייסבוק
+פותח על ידי [לאון יעקובוב](https://www.facebook.com/profile.php?id=100083738319354) עבור קבוצת Jobs in Israel בפייסבוק
 
 </div>
